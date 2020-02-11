@@ -64,6 +64,8 @@ _Yields 1 sheet cake (approximately 18 generous servings). Cooks in approximatel
   1. Melt the butter in a small sauce pan over medium heat. Add sugar and cream. Bring to boiling and cook for 1 minute.
   
   2. To serve, pour warm Butter Cream Sauce over individual pieces of cake.
+  
+  ___
 
 
 _From Aunt Donna’s recipe box, a recipe passed down from her Aunt Evel Peterson. Modifications made by Allison Thompson._
