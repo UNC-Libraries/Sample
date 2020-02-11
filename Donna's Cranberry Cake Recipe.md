@@ -65,9 +65,11 @@ _Yields 1 sheet cake (approximately 18 generous servings). Cooks in approximatel
   
   2. To serve, pour warm Butter Cream Sauce over individual pieces of cake.
   
+  ![cranberry bush](https://upload.wikimedia.org/wikipedia/commons/3/3a/Cranberry_bog.jpg)
+  
   ___
 
 
 _From Aunt Donna’s recipe box, a recipe passed down from her Aunt Evel Peterson. Modifications made by Allison Thompson._
 
-© a farmgirl's dabbles
+© [a farmgirl's dabbles](https://www.afarmgirlsdabbles.com/donnas-cranberry-cake-with-butter-cream-sauce/ "Original recipe")
