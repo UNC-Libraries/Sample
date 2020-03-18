@@ -1,5 +1,5 @@
 # DONNA’S CRANBERRY-GRAPEFRUIT CAKE WITH BUTTER CREAM SAUCE
-_Yields 1 sheet cake (approximately 18 generous servings). Cooks in approximately 45 minutes._
+Yields 1 sheet cake (approximately 18 generous servings). Cooks in approximately 45 minutes.
 
 ## INGREDIENTS:
 
