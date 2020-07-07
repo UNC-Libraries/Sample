@@ -39,6 +39,8 @@ Yields 1 sheet cake (approximately 18 generous servings). Cooks in approximately
   
 - 3/4 c. heavy cream
 
+- 1/2 tsp. vanilla flavoring
+
 
 ## DIRECTIONS:
 
